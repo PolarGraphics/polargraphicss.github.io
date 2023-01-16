@@ -1,1 +1,0 @@
-# polargraphicss.github.io
